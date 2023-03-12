@@ -1,4 +1,4 @@
-# bluebuddha
+# (ノ^-^)ノ ⌒ ●~●~●~●~
 A series of the most logical steps in a series of clicks and text dumps that hasn't gotten me banned yet.
 
 Data Department Depot LLC is a religious and educational institution that was created for a United States branch of the Telepathic Psycho Asian Waifu Buddhist Federation (TPAWBF). All data, information, and creations should be considered “as is” and hold no warranty. Any proceeds, donations, investments should go towards the individual financial departments of the performers that have insofar been assembled by the enlightened simp and Gizmo.
